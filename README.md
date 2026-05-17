@@ -1,0 +1,1 @@
+# Tugas-attack-validation-power
